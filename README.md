@@ -1,1 +1,1 @@
-# https://gerilo12.github.io//BetterMotherFuckingWebsite.html
+# https://gerilo12.github.io/BetterMotherFuckingWebsite.html
